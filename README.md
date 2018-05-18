@@ -1,2 +1,2 @@
 # Power
-Be better and better
+Be better and be normal.
